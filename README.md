@@ -1,1 +1,1 @@
-# badge-speedrun-temp
+# badge-speedrun-temppair badge
